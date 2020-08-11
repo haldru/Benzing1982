@@ -8,4 +8,4 @@
 
 ## Quellengrundlage
 
-> Josef Benzing, _Die Buchdrucker des 16. und 17. Jahrhunderts im deutschen Sprachgebiet_. 2., verbesserte und ergänzte Auflage. Wiesbaden: Harrassowitz, 1982. (= Beiträge zum Buch- und Bibliothekswesen 12).
+> Josef Benzing, _Die Buchdrucker des 16. und 17. Jahrhunderts im deutschen Sprachgebiet_. 2., verbesserte und ergänzte Auflage. Wiesbaden: Harrassowitz, 1982. (= Beiträge zum Buch- und Bibliothekswesen 12)
